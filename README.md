@@ -1,6 +1,6 @@
 # Peacocktv.com/tv
  
-[![peacocktv.com/tv](get-start.png)](https://Cracklecom-activate.github.io)
+[![peacocktv.com/tv](get-start.png)](https://httppeacocktvcomtv.github.io)
 
 Peacock TV is an online streaming application. People can access peacocktv.com/tv activation to watch the NBC Shows online. Check here the details about the **[peacocktv.com/tv](https://httppeacocktvcomtv.github.io)** activation in this article and know How To Enter Code Activate Peacock TV. Scroll down to know more.
 
